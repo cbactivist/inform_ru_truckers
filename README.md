@@ -6,7 +6,7 @@ The Russian Federation has started an [attack](https://uacrisis.org/en/voienni-z
 
 Mariupol, which  is a city with the population of more than 400k people in the East part of Ukraine, is [under siege](https://www.bbc.com/news/world-europe-60601235). People are being completely cut off. They don't have electricity, heating, natural gas and water. No medicine, no food.
 
-Ukrainian President Volodymyr Zelenskyi  is the  number one [target](https://www.wsj.com/articles/once-a-comic-ukrainian-president-transforms-into-wartime-leader-11645794378), his family is target number two for the infiltration killing team. President of the Russian Federation Vladimir Putin [threatens](https://www.bloomberg.com/news/articles/2022-03-17/putin-is-likely-to-make-nuclear-threats-if-war-drags-u-s-says) the world with nuclear weapons. Total propaganda and information vacuum lead to support for the blood fascist regime.
+Ukrainian President Volodymyr Zelenskyi  is the  number one [target](https://www.wsj.com/articles/once-a-comic-ukrainian-president-transforms-into-wartime-leader-11645794378), his family is target number two for the diversion reconnaissance group. President of the Russian Federation Vladimir Putin [threatens](https://www.bloomberg.com/news/articles/2022-03-17/putin-is-likely-to-make-nuclear-threats-if-war-drags-u-s-says) the world with nuclear weapons. Total propaganda and information vacuum lead to support for the blood fascist regime.
 
 Despite this, Russian trucks freely deliver goods to the terrorist state. From the received intercepts of radio conversations between car drivers, we can claim  that they support the regime. Because of the lack of knowledge, lack of information, lack of education.
 
