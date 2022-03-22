@@ -12,7 +12,7 @@ Despite this, Russian trucks freely deliver goods to the terrorist state. From t
 
 Let us help them to understand and to show what horrible things their state is doing.
 
-For this  we are asking you to monitor the CB band. Russian truckers are using **channel №15 freq. 27.130 AM** to communicate between themselves. Please try to recognize **Russian speech**. In case you find  an activity, you can transmit one of the following messages which  can be  found in this repository. Please don’t do it too frequently. We need them to stay on the frequency and not migrate to the Internet :).
+For this  we are asking you to monitor the CB band. Russian truckers are using **channel №15 freq. 27.130 AM** to communicate between themselves. Please try to recognize **Russian speech**. In case you find  an activity, you can transmit one of the following messages which  can be  found in this [repository](https://github.com/cbactivist/inform_ru_truckers/tree/main/audio). Please don’t do it too frequently. We need them to stay on the frequency and not migrate to the Internet :).
  
 The main goal of the messages is to show them the truth.
 
